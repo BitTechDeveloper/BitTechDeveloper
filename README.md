@@ -10,7 +10,8 @@ Businesses and Web agencies can outsource their work to me, I will deliver a qua
 
 I'm a single person doing Freelancing not agency.
 I do not outsource further, from start to finish every single thing I do my self.
-So privacy wouldn't be a problem, you don't need to worry about your Data, you can trust me blindly.
+So privacy wouldn't be a problem, you don't need to worry about your Data, you can trust me blindly.   
+I will not even display your project as a portfolio to other clients, If you don't allow.
 
 There are few fields in which I will not work like:
 
